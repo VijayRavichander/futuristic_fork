@@ -1,1 +1,1 @@
-No idea what is about to come in here :) 
+No idea about what is going to come in here :) 
